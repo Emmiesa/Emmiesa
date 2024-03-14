@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Emmiesa
+- 🌱 I’m currently learning java!
+- 📫 How to reach me: [DISCORD](https://discord.gg/NXWZYuJcdf)
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love minecraft!
